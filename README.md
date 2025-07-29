@@ -27,7 +27,7 @@ I enjoy working in agile teams where I can contribute to quality-driven developm
 
 I really enjoy working with others and believe the best results come from teamwork. I’m excited to connect and collaborate with you!
 
-Feel free to reach out to me at kprathamesh1010@gmail.com or connect with me on LinkedIn.
+Feel free to reach out to me at kprathamesh1010@gmail.com or connect with me on [LinkedIn] (https://www.linkedin.com/in/prathamesh-kumbhar-84a317338/).
 
 
 <!--
